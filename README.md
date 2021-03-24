@@ -2,7 +2,7 @@
 
 I'm the **Sr Alpha**! BR 👋
 
-	> The World + Code = "Hello World!"
+	> The World + Code = " Hello World! "
 	
 ### 📝 " Tudo na vida é variável, e precisa de lógica para existir. " 💭
 
