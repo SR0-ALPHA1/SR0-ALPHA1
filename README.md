@@ -1,4 +1,4 @@
-# _Hello!_ ⚙
+# _Hello! ⚙_
 
 I'm the **Sr Alpha**! BR 👋
 
