@@ -6,7 +6,7 @@ I'm the **Sr Alpha**! BR 👋
 
 #### I'm passionate for solving problems and developing new knowledge. 🧠
 
-### 📝 " Tudo na vida é variável, e precisa de lógica para existir. " 💭
+## 📝 " Tudo na vida é variável, e precisa de lógica para existir. " 💭
  
 - I believe that machines and codes are examples of eternal love. ⌨ ❤
 
