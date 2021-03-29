@@ -6,7 +6,7 @@ I'm the **Sr Alpha**! BR 👋
 
 #### ✍ I'm passionate for solving problems and developing new knowledge. 🧠
 
-### 📝 " O importante é o processo e o aprender dos erros feitos, não apenas o resultado. " 💭
+### 📝 " O importante é o aprender dos erros feitos, não apenas o resultado. " 💭
  
 - I believe that machines and codes are examples of eternal love. ⌨️ ❤
 
