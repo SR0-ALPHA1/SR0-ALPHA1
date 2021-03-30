@@ -4,7 +4,7 @@ I'm the **Sr Alpha**! BR 👋
 
 	> The World + Code = " Hello World! "
 
-#### ✍ I'm passionate for solving problems and developing new knowledge. 🧠
+#### ✍ Is very good solving problems and developing new knowledge. 🧠
 
 ### 📝 " O importante é o aprender dos erros feitos, não apenas o resultado. " 💭
  
