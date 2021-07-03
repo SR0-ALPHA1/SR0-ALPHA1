@@ -6,7 +6,7 @@ I'm the **Sr Alpha**! BR 👋
 
 #### Is very good solving problems and developing new knowledge. ✍ 🧠
 
-### 📝 " O importante é o aprender dos erros feitos, não apenas o resultado. " 💭
+### 📝 A escrita não faz a lógica mas, a lógica faz a escrita. 💭
  
 - I believe that machines and codes are examples of eternal love. ⌨️ ❤
 
